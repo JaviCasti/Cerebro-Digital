@@ -1,0 +1,1 @@
+Un Ritual que permite cambiar el origen del poder de la [[Espada-Alma]]
